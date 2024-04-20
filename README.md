@@ -1,5 +1,9 @@
 
-![photo_2024-04-20_16-37-17](https://github.com/adafa11/adafa11/assets/167614399/d0daab39-8664-482a-bfbb-21f337d54fef)
+
+
+https://github.com/adafa11/adafa11/assets/167614399/99732063-7bcb-4ce5-9c57-bdc6cfbeb291
+
+
 
 iOS苹果远控震撼来袭。ios系统苹果系统。苹果远控来袭Rhino IOS 僵尸网络旗舰版
 
